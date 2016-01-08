@@ -1,2 +1,2 @@
 # github-practice
-Get me the hell out of this class
+Just kidding, I like this class.... don't know why I committed that!
